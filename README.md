@@ -1,2 +1,0 @@
-# AdityaSingh
-AdityaSingh
